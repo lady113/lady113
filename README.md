@@ -8,9 +8,15 @@ dottie dog's favorite websites
 
 ![](https://files.catbox.moe/mpwf2w.gif) https://lilyblossom.neocities.org
 
+![](https://files.catbox.moe/mpwf2w.gif) https://theponyarchive.com
+
 ![](https://files.catbox.moe/mpwf2w.gif) https://www.sinkdog.com/all
 
 ![](https://files.catbox.moe/mpwf2w.gif) https://yerf.metafur.org
+
+![](https://files.catbox.moe/mpwf2w.gif) https://vintagefursuits.neocities.org/Html/Skiltaire
+
+![](https://files.catbox.moe/mpwf2w.gif) https://confurence.com
 
 ![](https://files.catbox.moe/mpwf2w.gif) https://janedogs.com
 
