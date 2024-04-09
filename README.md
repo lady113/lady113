@@ -14,8 +14,6 @@ dottie dog's favorite websites
 
 ![](https://files.catbox.moe/mpwf2w.gif) https://confurence.com
 
-![](https://files.catbox.moe/mpwf2w.gif) https://janedogs.com
-
 ![](https://files.catbox.moe/mpwf2w.gif) http://www.bordercolliemuseum.org
 
 
