@@ -3,6 +3,9 @@
 </p>
 
 <p align="center">
-    <img width="200" src="https://toyhou.se/zekielzilla" alt="art by zekielzilla">
+  art by https://toyhou.se/zekielzilla
 </p>
+
+
+
 
