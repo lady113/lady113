@@ -3,8 +3,7 @@
 </p>
 
 <p align="center">
-  art by https://toyhou.se/zekielzilla
-</p>
+<a href="https://toyhou.se/zekielzilla">art by zekielzilla</a>
 
 
 
