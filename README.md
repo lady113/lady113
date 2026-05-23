@@ -1,10 +1,3 @@
 <p align="center">
-  <img src="https://files.catbox.moe/zjtb71.gif" />
+  <img src="https://files.catbox.moe/3lh78x.png" />
 </p>
-<p align="center">
-  <img src="https://files.catbox.moe/u6b85l.png" />
-</p>
-<p align="center">
-  <img src="https://files.catbox.moe/kl95mb.png" />
-</p>
-
